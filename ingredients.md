@@ -1,0 +1,3 @@
+Food: 1 (10 ounce) package of frozen spinach which is thawed and drained, 1 (9 inch) unbaked deep dish pie crust, 4 beaten eggs, 3 cloves of chopped garlic, 1 small chopped onion, 1(4.5 ounce) of drained canned mushrooms,1 (6 ounce) package of herb and garlic feta which has been crumbled, 1 cup of milk,1/2 butter, 1 (8 ounce) package of shredded Cheddar cheese, and salt and pepper
+
+Tools: Oven, medium skillet, medium sized bowl, whisk
